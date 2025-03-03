@@ -1,1 +1,1 @@
-WHAT THE SIGMA
+![ezgif-441398352d41f5](https://github.com/user-attachments/assets/58d8a6e6-7819-428e-86eb-38d4614365d1)
